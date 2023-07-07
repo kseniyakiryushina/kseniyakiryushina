@@ -1,4 +1,4 @@
-👋 Hi, I’m Kseniya
+### Hi, I’m Kseniya
 - 👀 I’m interested in cycling, drawing and watching TV series
 - 🌱 I’m currently working at Ministry of Industry and Trade of Russia
 
