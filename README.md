@@ -1,5 +1,5 @@
 ### Hi, I’m Kseniya
-- 👀 I’m interested in cycling, drawing and watching TV series
+- 👀 I’m interested in cycling, drawing and traveling
 - 🌱 I’m currently working at Ministry of Industry and Trade of Russia
 
 <!---
